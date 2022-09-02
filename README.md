@@ -26,3 +26,5 @@
 
   ## 💰You can help me by Donating
   [![PayPal](https://img.shields.io/badge/PayPal-00457C?style=for-the-badge&logo=paypal&logoColor=white)](https://paypal.me/Jaswalashish48)
+
+<p><a href="https://www.buymeacoffee.com/JaswalAshish "> <img align="left" src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" height="50" width="210" alt="JaswalAshish " /></a></p><br><br>
